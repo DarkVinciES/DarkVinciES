@@ -14,7 +14,6 @@
 
 - 📝 I occasionally write my thoughts on [medium.com/@eashansithum](www.medium.com/@eashansithum)
 
-- 📧 You can contact me at [eashansithum@gmail.com](eashansithum@gmail.com)
 
 ---
 
